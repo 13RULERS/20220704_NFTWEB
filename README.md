@@ -1,1 +1,13 @@
 # 20220704_NFTWEB
+
+QxQ
+
+OAO
+
+CvC
+
+EwE
+
+TuT
+
+bvb
